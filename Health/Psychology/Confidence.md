@@ -1,10 +1,4 @@
-You might lose confidence sometims, it is fine. 
-
-Talk with different people, you are not evaluated by a single person. 
-
-Do specific things, such as reading or data analysis 
-
-write down how do you feel, make this process a public product 
-
-
-
+- You might lose confidence sometimes, and that’s fine.  
+- Talk with different people; you are not evaluated by a single person.  
+- Focus on specific tasks, such as reading or data analysis.  
+- Write down how you feel and turn this process into a public product.  
